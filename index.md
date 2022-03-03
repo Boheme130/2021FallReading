@@ -4,9 +4,11 @@
 <br>
 
 
-Just A Bit Wrecked (by Alessandra Hazard)<br>```
+Just A Bit Wrecked (by Alessandra Hazard)<br>
+```
 	语言难度★ <br>
-	剧情评分：4.4/5``` <br>
+	剧情评分：4.4/5
+```
 ⭕️关键词：荒岛求生；掰弯<br>
 一直一弯两个霸总飞机出事掉到荒岛上，他们两人的爱人都当场死亡。其中一人在飞机还没出事前就表现得很恐同，现在掉落在荒岛上，完全没有生存技能的他不得不依赖另一个比较会生存的人。<br>
 
