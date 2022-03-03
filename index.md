@@ -4,18 +4,23 @@
 <br>
 
 
-Just A Bit Wrecked (by Alessandra Hazard)```
+Just A Bit Wrecked (by Alessandra Hazard)<br>```
 	语言难度★
 	剧情评分：4.4/5```
-⭕️关键词：荒岛求生；掰弯
-一直一弯两个霸总飞机出事掉到荒岛上，他们两人的爱人都当场死亡。其中一人在飞机还没出事前就表现得很恐同，现在掉落在荒岛上，完全没有生存技能的他不得不依赖另一个比较会生存的人。
+⭕️关键词：荒岛求生；掰弯<br>
+一直一弯两个霸总飞机出事掉到荒岛上，他们两人的爱人都当场死亡。其中一人在飞机还没出事前就表现得很恐同，现在掉落在荒岛上，完全没有生存技能的他不得不依赖另一个比较会生存的人。<br>
 
+<br>
+<br>
 
-Just A Bit Bossy (by Alessandra Hazard)
+Just A Bit Bossy (by Alessandra Hazard)<br>
 	语言难度★
 	剧情评分：4.4/5
-⭕️关键词：游戏开发；霸总；意大利雕塑般侧颜
+⭕️关键词：游戏开发；霸总；意大利雕塑般侧颜<br>
 一个CS毕业生Nate涉世未深，被一个很会pua人的意大利霸总Ferrara威胁签下了廉价卖身契，骗进了游戏公司996做他的私人助理。一天霸总的意大利老爹紧急求助，原来他全家被意大利黑帮绑架了，于是Ferrara带上Nate假扮他的男友前往意大利交涉。书里汇集所有霸总狗血片段。
+
+<br>
+<br>
 
 
 Aunt Adeline’s Bequest (by Amy Rae Durreson)
