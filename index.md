@@ -1,5 +1,6 @@
 ## 2021-2022秋冬季扫文
 [回到主页](https://boheme130.github.io/Fiction.git.io/)
+![avatar](https://i.ibb.co/wdtt2Xm/UA3-UJRVHWAI6-XKFHL5-C53-TPTMQ-2.jpg)
 <br>
 <br>
 
