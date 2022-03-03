@@ -4,9 +4,9 @@
 <br>
 
 
-Just A Bit Wrecked (by Alessandra Hazard)<br>
+## Just A Bit Wrecked (by Alessandra Hazard)<br>
 ```
-	语言难度★ <br>
+	语言难度★
 	剧情评分：4.4/5
 ```
 ⭕️关键词：荒岛求生；掰弯<br>
